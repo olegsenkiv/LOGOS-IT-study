@@ -1,1 +1,1 @@
-# LOGOS-IT-study
+# LOGOS-IT-2020
